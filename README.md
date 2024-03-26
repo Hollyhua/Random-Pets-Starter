@@ -1,2 +1,2 @@
 # lab6_codepath
-![Image Alt Text](lab6.mp4)
+[Link text](https://imgur.com/a/O2wfo3j)
